@@ -8,3 +8,8 @@ Meu nome é Laura.
   ### Para entrar em contato comigo, use:
 
   00001132654841sp@al.educacao.sp.gov.br
+
+
+
+
+![](https://tenor.com/pt-BR/view/crazy-cat-dancing-crazy-cat-dance-moves-too-cool-i-got-this-gif-14504785)
